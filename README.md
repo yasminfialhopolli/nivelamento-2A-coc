@@ -1,0 +1,1 @@
+eu espero que com essa materia, aprenda mais como fazer uso melhor da tecnologia de formas correstas pois nesse periodo a tecnologia tem grande influencia, quanto no dia a dia ou no meio de trabalho por esse motivo devemos conhecer melhor 
